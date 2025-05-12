@@ -19,9 +19,13 @@ Detaylar için ziyaret edebilirsiniz:
 ## 👥 Kimler İçin İdeal?
 
 - Minimalist şehirli erkek kullanıcılar
+- Minimalist şehirli kadın kullanıcılar
 - Dijital nomad’ler ve freelance çalışanlar
 - Scooter veya bisikletle ulaşım sağlayanlar
 - Ofis ve günlük kullanımda stilini korumak isteyenler
+- outdoor çanta arayanlar
+- erkek hediye fikri arayanlar
+- erkek belden çanta, erkek çapraz çanta arayanlar
 
 ## 🎯 Neden Tercih Ediliyor?
 
